@@ -1,0 +1,2 @@
+# MEFEDRQNQWELOVE
+Mieć czy być
